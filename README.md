@@ -1,0 +1,1 @@
+- 📍 Hexágonos crónicos de convivencia por Administración Zonal: https://omscgr.github.io/Hexagonos-cronicos-de-convivencia-por-Administraci-n-Zonal/
